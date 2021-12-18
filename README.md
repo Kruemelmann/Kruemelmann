@@ -1,1 +1,1 @@
-### Love eating 🍪 while 'programming' ;)
+### Love eating 🍪 while programming ;)
